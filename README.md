@@ -16,7 +16,8 @@
 **Brother**:
 
 + Giacomo <sub>W brother and is a discorder like me</sub>
-![Giacomo's profile picture}(
+
+![Giacomo's profile picture]()
 
 **Age**:
 
