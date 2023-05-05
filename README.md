@@ -47,7 +47,8 @@
 - Fear of the dark
 - Fear of failure
 - Too aggressive after being bullied or seeing anyone get bullied
-- Too nice to say no,etc
+- Too nice to say no
+- etc
 
 **Food I like a lot**:
 
