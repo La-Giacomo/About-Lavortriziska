@@ -73,8 +73,10 @@
 
 **Things that make me mad**:
 
-- Being mean to someone,being a terrible person
-- not being nice,being really toxic
+- Being mean to someone
+- being a terrible person
+- not being nice
+- being really toxic
 - being annoying 
 - just not making me feel happy from you
 
