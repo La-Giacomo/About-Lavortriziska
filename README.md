@@ -1,6 +1,6 @@
 # About Lavortriziska!
 
-![Flag of Craysta]()
+![Flag of Craysta](https://user-images.githubusercontent.com/130729552/236391734-d6d8c4d8-fb02-460d-a582-38357a773d69.jpg)
 
 **Name**:
 
@@ -17,7 +17,7 @@
 
 + Giacomo <sub>W brother and is a discorder like me</sub>
 
-![Giacomo's profile picture]()
+![Giacomo's profile picture](https://user-images.githubusercontent.com/130729552/236391869-1d6b57d8-ebb9-4aa1-b488-8d51254ced01.png)
 
 **Age**:
 
